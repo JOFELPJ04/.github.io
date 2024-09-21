@@ -1,4 +1,4 @@
-# Jofel P Jestin - Personal Website
+# Thanks for stopping by!
 
 Welcome to my personal website! I am a second-year engineering student passionate about technology and innovation. 
 
